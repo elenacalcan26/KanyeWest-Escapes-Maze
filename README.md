@@ -12,3 +12,13 @@ https://user-images.githubusercontent.com/62752433/155909384-172d239a-33f9-4a2f-
 
 ![Screenshot (43)](https://user-images.githubusercontent.com/62752433/155908070-64f94499-d2a6-424c-8c46-b746d789cf90.png)
 
+
+## References
+
+[1] https://www.youtube.com/watch?v=cwQgjq0mCdE
+
+#### Character design
+
+![iloveit](https://user-images.githubusercontent.com/62752433/155909874-8fdf8343-46f4-4cc7-b919-c20f702739bf.jpg)
+
+
